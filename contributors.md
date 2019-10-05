@@ -13,5 +13,5 @@ Jayesh Kriplani Vivekanand</br>
 abhishek waghmare vivekanand </br>
 Siddhesh Vivek Naik  TCET <br>
 Jay Bakulesh Mithani <br>
-Neel Patel TCET <br>
+Neel Patel  <br>
 Sejal Chandak <br>
